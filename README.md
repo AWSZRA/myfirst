@@ -1,2 +1,2 @@
 # myfirst
-best description ever
+best description ever on earth
